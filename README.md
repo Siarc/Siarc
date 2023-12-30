@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Siarc
+- 👋 Hi, I’m Aminul Islam
 - 👀 I’m interested in ¯\_(ツ)_/¯
 - 🌱 I’m currently learning ¯\_(ツ)_/¯
 - 💞️ I’m looking to collaborate on ¯\_(ツ)_/¯
